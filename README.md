@@ -1,7 +1,7 @@
 <!DOCTYPE html>
 <html>
 <head>
-  <title> ALL ABOUT PEY ! </title>
+  <title>ALL ABOUT PEY !</title>
 </head>
 <body> Hey Im Pey :hand:. I was legally born 'Irnise Di-Bree White' on Novemeber 6th, 1996 to My parents Sharon & Irwin White. but when im following the white rabbit like Neo in the movie 'The Matrix' i like to go by Pey. you as the reader/viewer shall feel free to call me either or... just as long as you call me lol 
   
